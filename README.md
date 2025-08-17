@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://github.com/user-attachments/assets/47d20ec9-c61b-4742-ae57-960237dd4d2f" />
+<img src="https://github.com/user-attachments/assets/b442331a-780a-4f76-9078-25ecedb6d435" />
 </p>
 
 
@@ -15,5 +15,5 @@ the time i'm off-tab!
 
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/df68e375-f645-458a-8acc-107d231ed2b3" />
+<img src="https://github.com/user-attachments/assets/89e7be60-19f3-45b0-a858-61cdb37c423d" />
 </p>
