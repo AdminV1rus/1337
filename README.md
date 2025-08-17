@@ -5,7 +5,7 @@
 
 <p align="center">
   i can be found at the roblox area or at the dock<br/>
-  in the Safe Spanish/Portuguese server , sometimes i am in my island >u< <br/> 
+  in the Safe Spanish/Portuguese server , sometimes i am in my island >u< ! <br/> 
  </p>
 
 <p align="center">
