@@ -9,7 +9,7 @@
 
 
 <p align="center">
-——————————⟣⠀ <a href="https://open.spotify.com/user/31akliaw36bcjt5fhwpzckkznwl4?si=65133e95ac2e4137">Spotify</a>　　　　<a href="https://discord/channels/@me/1285366604200284191">Discord</a>　　　　<a href="https://www.youtube.com/watch?v=NLEqRNhv6gs&list=RDNLEqRNhv6gs&start_radio=1&pp=ygUOcG9sdW1uaWEgb21uaWGgBwE%3D">Listen</a>⠀⟢——————————
+——————————⟣⠀ <a href="https://open.spotify.com/user/31akliaw36bcjt5fhwpzckkznwl4?si=65133e95ac2e4137">Spotify</a>　　　<a href="https://www.youtube.com/watch?v=NLEqRNhv6gs&list=RDNLEqRNhv6gs&start_radio=1&pp=ygUOcG9sdW1uaWEgb21uaWGgBwE%3D">Listen</a>⠀⟢——————————
 
 <p align="center">
   <br> ${\textsf{\color{#619fe4}w2i at all times       ✦.✦　      fell free to int  ✦ }}$ <br>
