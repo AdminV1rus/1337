@@ -1,11 +1,13 @@
 <p align="center">
-<img src="https://github.com/user-attachments/assets/b442331a-780a-4f76-9078-25ecedb6d435" />
+<img src="https://github.com/user-attachments/assets/3418792b-e7cd-457c-a3a7-a3397b8499c2" />
 </p>
 
 
 <p align="center">
   i can be found at the roblox area or at the dock<br/>
   in the Safe Spanish/Portuguese server , sometimes i am in my island >u< ! <br/> 
+  You will rarely find me on Pt, I usually spend more <br/>
+  time playing Roblox or Genshin I.
  </p>
 
 <p align="center">
@@ -13,7 +15,12 @@ i apologize if i didn't see your message, most of<br/>
 the time i'm off-tab! 
 </p>
 
+<p align="center">
+Genshin : 679176267 (main account.) America <br/>
+secondary account : 1814050546 (Asia)
+</p>
+
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/89e7be60-19f3-45b0-a858-61cdb37c423d" />
+<img src="https://github.com/user-attachments/assets/f50c4b3f-7975-43a3-8049-3329f4a41fff" />
 </p>
