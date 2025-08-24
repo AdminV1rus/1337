@@ -21,6 +21,6 @@ secondary account : 1814050546 (Asia)
 </p>
 
 
-<p align="center"
-![wanderer-genshin](https://github.com/user-attachments/assets/7607210e-8e80-49ab-ab60-a39b2d8fc667)
-</p>
+
+
+![wanderer-wanderer-genshin](https://github.com/user-attachments/assets/a50660ee-8db7-4ebb-be8a-14826a26678b)
