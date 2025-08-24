@@ -4,16 +4,14 @@
 
 
 <p align="center">
-  i can be found at the roblox area or at the dock<br/>
-  in the Safe Spanish/Portuguese server , sometimes i am in my island >u< ! <br/> 
-  You will rarely find me on Pt, I usually spend more <br/>
-  time playing Roblox or Genshin I.
- </p>
+  <br> ${\textsf{\color{#071db1}Wanderer　　Any pronoun　✦　c + h　 ,   int　✦　}}$ <br>
+ 
+<p align="center">
+  <br> ${\textsf{\color{#619fe4}w2i at all times .　fell free to int  ✦ }}$ <br>
+
 
 <p align="center">
-i apologize if i didn't see your message, most of<br/>
-the time i'm off-tab! 
-</p>
+——————————⟣⠀ <a href="https://open.spotify.com/user/31akliaw36bcjt5fhwpzckkznwl4?si=65133e95ac2e4137">Spotify</a> ⠀⟢——————————
 
 <p align="center">
 Genshin : 679176267 (main account.) America <br/>
