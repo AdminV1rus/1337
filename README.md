@@ -15,14 +15,14 @@
 
 
 <p align="center">
-<br> ${\textsf{\color{#80955e}: 1814050546 |Asia ✦ }}$ <br>
+<br> ${\textsf{\color{#91757e}: 1814050546 |Asia ✦ }}$ <br>
 </p>
 
 
 
 
 <p align="center">
-  <br> ${\textsf{\color{#85a097}MagicPixel   lover !  }}$ <br>
+  <br> ${\textsf{\color{#9a3d72}MagicPixel   lover !  }}$ <br>
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/ee171c68-09ab-4b8d-a631-deabe1162de4" />
