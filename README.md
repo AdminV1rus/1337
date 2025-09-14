@@ -1,8 +1,6 @@
 <p align="center">
-<img src="https://github.com/user-attachments/assets/041ee970-306b-432f-b170-cb000307c765"
-" />
+<img src="https://github.com/user-attachments/assets/3bb83998-22c0-43ea-aec5-43d00fb2ee37" />
 </p>
-
 
 <p align="center">
   <br> ${\textsf{\color{#0f89a8}Kai　　Any pronoun　✦　c + h　 　✦　}}$ <br>
@@ -22,9 +20,11 @@
 
 
 
+
 <p align="center">
   <br> ${\textsf{\color{#85a097}MagicPixel   lover !  }}$ <br>
 
 <p align="center">
+<img src="https://github.com/user-attachments/assets/ee171c68-09ab-4b8d-a631-deabe1162de4" />
 
-</p>
+
