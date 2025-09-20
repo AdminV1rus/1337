@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-  <br> ${\textsf{\color{#0f89a8}Kai　　Any pronoun　✦　c + h　 　✦　}}$ <br>
+  <br> ${\textsf{\color{#0f89a8}Kai　　Any pronoun　✦　c + h　 　✦ 　}}$ <br>
  
 
 
